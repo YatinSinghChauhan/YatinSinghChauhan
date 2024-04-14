@@ -2,7 +2,7 @@
 - 👀 I’m interested in ...AI and Tech🤖
 - 🌱 I’m aspiring ... AI&ML/ Software Developer📑
 - 💞️ I’m looking for ... New Opportunities🎯
-- 📫 How to reach me ... via mail📧 OR LinkedIn🔗
+- 📫 How to reach me ... LinkedIn🔗
 - 😄 Pronouns: ...
 - ⚡ Fun fact: ... I'm CAR Enthusiast🧡 
 
